@@ -1,4 +1,4 @@
-# Hi, I'm Sk Aziz Hosen👋
+# Hi, I'm Sk Azizul Hosen👋
 
 ### 💻 Computer Science & Engineering Student | Java Developer | Problem Solver
 
